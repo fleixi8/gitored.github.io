@@ -1,3 +1,2 @@
 # gitored.github.io
-
-i dont understand what?
+uhhhh those many windows build? or i dont know?
